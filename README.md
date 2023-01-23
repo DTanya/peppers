@@ -22,7 +22,7 @@ Scotch Bonnet Yellow – острота около 300 000 SHU. Благодар
 
 ![Скотч](https://plantium.ru/image/catalog/seeds/peppers/chinense/scotch-bonnet/yelllow/scotch-bonnet-yellow-plantium.ru.jpg)
 
-Trinidad Scorpion Moruga Red – один из редких представителей вида Capsicum chinense. Плод размером с теннисный шарик представляет собой самый острый перец в мире на конец 2013 года. Его средняя острота составляет 1.200.000 SHU, а самый острый рекорд более 2.000.000 SHU. Помимо остроты Moruga обладает нежным фруктовым вкусом.
+Trinidad Scorpion Moruga – один из редких представителей вида Capsicum chinense. Плод размером с теннисный шарик представляет собой самый острый перец в мире на конец 2013 года. Его средняя острота составляет 1.200.000 SHU, а самый острый рекорд более 2.000.000 SHU. Помимо остроты Moruga обладает нежным фруктовым вкусом.
 
 ![Тринидад](https://plantium.ru/image/catalog/seeds/peppers/chinense/trinidad_scorpion/butch_t/trinidad-scorpion-butch-t-yellow/trinidad-scorpion-butch-t-yellow-plantium.ru.jpg)
 
