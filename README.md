@@ -27,6 +27,7 @@ Trinidad Scorpion Moruga Red – один из редких представит
 ![Тринидад](https://github.com/DTanya/peppers/blob/work/carolina_reaper.jpg)
 
 7 POD (переводится как 7 горшков, т.е при помощи одно перца можно приготовить семь горшков тушеного мяса, каких именно горшков в объеме я не знаю).
+
 ![](https://plantium.ru/image/catalog/seeds/peppers/chinense/trinidad_scorpion/7_pot/7-pot-jonah/7-pot-jonah-plantium.ru.jpg)
 
 Так же имеются различные другие виды перца Capsicum baccatum которые обладают так же удивительным ароматом и различной остротой но с хиненсами они не сравняться, хотя тоже весьма остры и ароматны (аромат свойственный виду описать сложно, нужно пробовать).
