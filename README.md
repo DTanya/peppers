@@ -24,11 +24,11 @@ Scotch Bonnet Yellow – острота около 300 000 SHU. Благодар
 
 Trinidad Scorpion Moruga Red – один из редких представителей вида Capsicum chinense. Плод размером с теннисный шарик представляет собой самый острый перец в мире на конец 2013 года. Его средняя острота составляет 1.200.000 SHU, а самый острый рекорд более 2.000.000 SHU. Помимо остроты Moruga обладает нежным фруктовым вкусом.
 
-![Тринидад](https://github.com/DTanya/peppers/blob/work/carolina_reaper.jpg)
+![Тринидад](https://plantium.ru/image/catalog/seeds/peppers/chinense/trinidad_scorpion/butch_t/trinidad-scorpion-butch-t-yellow/trinidad-scorpion-butch-t-yellow-plantium.ru.jpg)
 
 7 POD (переводится как 7 горшков, т.е при помощи одно перца можно приготовить семь горшков тушеного мяса, каких именно горшков в объеме я не знаю).
 
-![](https://plantium.ru/image/catalog/seeds/peppers/chinense/trinidad_scorpion/7_pot/7-pot-jonah/7-pot-jonah-plantium.ru.jpg)
+![7 под](https://plantium.ru/image/catalog/seeds/peppers/chinense/trinidad_scorpion/7_pot/7-pot-jonah/7-pot-jonah-plantium.ru.jpg)
 
 Так же имеются различные другие виды перца Capsicum baccatum которые обладают так же удивительным ароматом и различной остротой но с хиненсами они не сравняться, хотя тоже весьма остры и ароматны (аромат свойственный виду описать сложно, нужно пробовать).
 
